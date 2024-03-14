@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Cris
+- 👀 I’m interested in idk
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on idk
+- 📫 How to reach me idk
+- 😄 Pronouns: im a guy
+- ⚡ Fun fact: idk
